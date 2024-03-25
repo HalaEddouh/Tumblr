@@ -2,7 +2,7 @@
 
 Submitted by: Hala Eddouh
 
-Tumblr is an app that you ca laugh at
+Tumblr is an app that you can laugh at
 
 Time spent: 4 hours spent in total
 
